@@ -1,4 +1,4 @@
-### gri61241
+### - **Discord**: [gri61241](https://discord.com/users/gri61241)
 
 <!--
 **gri61241/gri61241** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
